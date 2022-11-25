@@ -1,4 +1,4 @@
-**oii,sou a Layane Wagner do Colégio Rio do Couro**
+**Oii,sou a Layane Wagner do Colégio Rio do Couro**
 
 Sou estudante de pensamento computacional na escola
 
