@@ -1,10 +1,10 @@
-**Oii,sou a Layane Wagner do Colégio Rio do Couro**
+**Oii, sou a Layane Wagner do Colégio Rio do Couro**
 
 Sou estudante de pensamento computacional na escola
 
 Faço dupla com a Francielly!&#128149;
 
-Está sendo uma esperiencia muito legal!&#9996;
+Está sendo uma experiência muito legal!&#9996;
 
 Estou desenvolvendo essa página 
 
